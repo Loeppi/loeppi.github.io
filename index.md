@@ -14,3 +14,6 @@ Meeresgrund Abenteuer erlebt.
 
 > Das Ablecken von Türknöpfen ist auf anderen Planeten illegal.
 
+<img src="https://www.freeiconspng.com/uploads/spongebob-picture-image-18.png" />
+
+
