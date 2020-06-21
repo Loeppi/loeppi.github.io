@@ -12,3 +12,5 @@ Meeresgrund Abenteuer erlebt.
 * ängstlich
 * porös
 
+> Das Ablecken von Türknöpfen ist auf anderen Planeten illegal.
+
